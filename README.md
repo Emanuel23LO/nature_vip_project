@@ -1,1 +1,0 @@
-# nature_vip_project
